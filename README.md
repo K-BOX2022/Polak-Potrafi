@@ -1,2 +1,0 @@
-# Polak-Potrafi
-Polak Potrafi
